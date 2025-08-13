@@ -1,3 +1,1 @@
-# References
-
-* octocat 1 😈
+Mis referencias personales están disponibles bajo solicitud.
